@@ -1,5 +1,5 @@
 # 💫 About Me:
-👋 Hi, I’m @PriyanshuGarg-18<br>👀 I’m interested in Coding<br>🌱 I’m currently learning coding <br>💞️ I’m looking to collaborate on any company<br>📫 How to reach me contact my gmail priyanshugarg282@gmail.com<br>😄 Pronouns: his/her<br>⚡ 
+👋 Hi, I’m @PriyanshuGarg-18<br>👀 I’m interested in Coding<br>🌱 I’m currently learning coding <br>💞️ I’m looking to collaborate on any company<br>📫 How to reach me contact my gmail priyanshugarg282@gmail.com<br>😄 Pronouns: his/her<br>
 
 
 ## 🌐 Socials:
